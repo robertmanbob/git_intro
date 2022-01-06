@@ -1,1 +1,2 @@
 Robert Vincent
+vincerob@oregonstate.edu
